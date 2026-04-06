@@ -4,3 +4,4 @@ XAY  ^_^
 
 
 ### Yaxshi tushunib siz :)
+## Keyin pythonda oddiy dastur orqali agar tezroq tekshirishiz mumkin chatgpt bilan 20mincha suhbatcha qilasiz ishiz bittadi
