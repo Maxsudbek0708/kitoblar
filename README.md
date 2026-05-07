@@ -8,4 +8,7 @@ XAY  ^_^
 
 
 https://tafakkur.net/gazallar/alisher-navoiy
+
 https://baxtiyor.uz/alisher-navoiy-gazallari-eng-sara-gazallar-audio-shaklda/
+
+https://arboblar.uz/uz/people/all
